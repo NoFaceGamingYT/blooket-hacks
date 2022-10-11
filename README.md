@@ -1,1 +1,1 @@
-# blooket-hacks
+Please star this project.
